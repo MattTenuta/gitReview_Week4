@@ -1,1 +1,1 @@
-# My awesome chainsaw juggling team
+# My awesome flaming sword swallowing team
